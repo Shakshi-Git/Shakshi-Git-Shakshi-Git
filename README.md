@@ -1,6 +1,9 @@
 🚀 About Me
+
 🎓 Master of Business Administration : HR & Finance || SKIT, Jaipur
+
 🎓 Master of Commerce: Applied Business Economics || DBRAU, Agra
+
 🛠️ Skilled in Data Wrangling, Data Cleaning and analytics.
 
 💼 Experience
