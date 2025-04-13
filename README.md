@@ -1,4 +1,4 @@
-🚀 About Me
+🚀 Education
 
 🎓 Master of Business Administration : HR & Finance || SKIT, Jaipur
 
